@@ -1,0 +1,1 @@
+# mindx_lession6
